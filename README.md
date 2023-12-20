@@ -4,7 +4,9 @@
 - 📧 This is my email to contact or inquire about something ( hamodacode8@gmail.com )
 
 |--------------------------------------------------------------------------------------------------------------------|
+                                                  
                                                     [ Social Media ]
+                                                    
 - ➜ My YouTube channel : SOON?!
 - ➜ My account on Instagram : SOON?!
 - ➜ My Discord server : 
