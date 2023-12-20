@@ -5,7 +5,7 @@
 
 |--------------------------------------------------------------------------------------------------------------------|
                                                   
-                                                    [ Social Media ]
+                                                  [ Social Media ] 
                                                     
 - ➜ My YouTube channel : SOON?!
 - ➜ My account on Instagram : SOON?!
